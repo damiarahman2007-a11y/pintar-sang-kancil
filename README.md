@@ -1,1 +1,0 @@
-# pintar-sang-kancil
